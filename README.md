@@ -1,5 +1,5 @@
-#### Hello! I am *Wenting Zhang*, *designer & entrepreneur* based in *New York City*. “wentin” is my Internet alias. She/Her. 👋🏼
-#### I am currently building a startup in the Typography and Branding space. Previously I worked at Adobe. My projects there include Adobe XD, Adobe Illustrator on iPad, and Adobe Fonts. I teach at School of Visual Arts and OfCourse. My course *Crafting Interactions* is taught at the Interaction Design MFA program.
+#### Hello! I am Wenting Zhang, designer & entrepreneur based in *New York City*. “wentin” is my Internet alias. She/Her. 👋🏼
+#### I am currently building a startup in the Typography and Branding space. Previously I worked at Adobe. My projects there include Adobe XD, Adobe Illustrator on iPad, and Adobe Fonts. I teach at School of Visual Arts and OfCourse. My course Crafting Interactions is taught at the Interaction Design MFA program.
 
 [Store](https://wentin.gumroad.com/l/FfLGoV) | 
 [Newsletter](https://wentin.substack.com/) | 
